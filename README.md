@@ -12,7 +12,7 @@
 
 - ⚡ Fun fact **I love reading books**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me:</h3> mabula19palesa@gmail.com
 <p align="left">
 </p>
 
